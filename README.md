@@ -1,1 +1,1 @@
-# Tubes-Probabilitas-dan-Statistika
+# Tubes Probabilitas dan Statistika
